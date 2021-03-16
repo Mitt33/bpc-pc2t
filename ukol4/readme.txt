@@ -1,0 +1,1 @@
+ukol 6 obsahuje ukol 4, jenom čtyřku už nemám xd
